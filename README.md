@@ -1,2 +1,2 @@
 Ammad Bhai sabkay Bhai 
-Maria beat friend miss sana
+Maria best friend miss sana
